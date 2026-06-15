@@ -3,7 +3,7 @@
 <img width="500" height="500" alt="𓈒𓏸 gregor plushie 𓂂" src="https://github.com/user-attachments/assets/75fd9d20-fb67-428a-9791-31e23d7dfeda" />
 
 
-ɪᴛ'ꜱ ᴀʟʀɪɢʜᴛ."
+"ɪᴛ'ꜱ ᴀʟʀɪɢʜᴛ."
 
 ‿‿‿
 
