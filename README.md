@@ -1,9 +1,5 @@
-"𝙸𝚝'𝚜 𝚊𝚕𝚛𝚒𝚐𝚑𝚝, 𝚜𝚒𝚗𝚌𝚎 𝙸 𝚌𝚊𝚗 𝚕𝚒𝚟𝚎 𝚘𝚗..."
+<img width="368" height="368" alt="#rphelp #fyp #follow (1)" src="https://github.com/user-attachments/assets/801e918a-0be6-47da-a02d-7dfd1d3dcee0" />
 
-<img width="368" height="368" alt="yi sang_ ok" src="https://github.com/user-attachments/assets/e6ed3f22-c076-46ab-9deb-1e5e3c023b60" />
-
-
-"ɪᴛ'ꜱ ᴀʟʀɪɢʜᴛ."
 
 ‿‿‿
 
